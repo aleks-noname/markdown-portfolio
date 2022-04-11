@@ -1,1 +1,1 @@
-![ixbt.com](https://ixbt.com)
+[ixbt.com](https://ixbt.com)
